@@ -1,1 +1,1 @@
-[Have you met Rushal?](http://haveyoumetrushal.in)
+[Have you met Rushal?](http://rushal.me)
